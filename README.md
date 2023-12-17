@@ -1,0 +1,1 @@
+Ema endi ne stedik&
